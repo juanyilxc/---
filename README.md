@@ -1,23 +1,29 @@
 ### [第一篇 故事的开端 那条流浪狗](http://jandan.net/t/4382152)
 
-### [第二篇](http://jandan.net/t/4383117)
+### [第二篇 编故事？！就让我来照顾你吧](http://jandan.net/t/4383117)
 
-### [第三篇](http://jandan.net/t/4385095)
+### [第三篇 82的拉菲 愉快的周末开始](http://jandan.net/t/4385095)
 
-###### ~[小插曲](http://jandan.net/t/4385188)~
+###### ~[插曲一](http://jandan.net/t/4385188)~
 
-### [第四篇](https://jandan.net/t/4385293)
+### [第四篇 我想这样也蛮好的](https://jandan.net/t/4385293)
 
-### [第五篇](http://jandan.net/t/4385319)
+### [第五篇 和第三篇重复了？](http://jandan.net/t/4385319)
 
-### [第六篇](http://jandan.net/t/4386141)
+### [第六篇 你恋爱了 我们酸了](http://jandan.net/t/4386141)
 
 ###### ~[插曲二](https://jandan.net/t/4386527)~
 
 ###### ~[插曲三](https://jandan.net/t/4386533)~
 
-### [第七篇](http://jandan.net/t/4386800)
+### [第七篇 玩点刺激的 好怕被发现啊](http://jandan.net/t/4386800)
 
-### [第八篇](http://jandan.net/t/4387599)
+### [第八篇 白天晚上都要好好干活儿](http://jandan.net/t/4387599)
 
-### [第九篇](http://jandan.net/t/4387968)
+### [第九篇 我是真的喜欢她了 要停更了](http://jandan.net/t/4387968)
+
+如简介说所，以上这些都是从[煎蛋](http://jandan.net)看到并整理，篇名都是我自己取的，取名只是为了好看些，添加名字后看着觉得像小说了
+
+存粹是为了便于阅读，并不是为了传播
+
+如有侵权联系我删除
